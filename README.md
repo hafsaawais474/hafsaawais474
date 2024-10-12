@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Hafsa Awais
+- 👀 I’m interested in UX and Learning new things in Tech
+- 🌱 I’m currently learning UI/UX
+- 💞️ I’m looking to collaborate on UX Projects
+- 😄 Pronouns: Her
+- ⚡ Fun fact: Masters in English + Exploring Tech World
